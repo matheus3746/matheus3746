@@ -7,4 +7,4 @@ Técnico em infórmatica
   
 
 
-![crash](https://github.com/user-attachments/assets/cdff015f-6b0a-4d15-9c61-b05389cec336)
+
